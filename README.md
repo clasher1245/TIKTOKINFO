@@ -1,0 +1,2 @@
+# TIKTOKINFO
+POWER BY FIXA 🥵
